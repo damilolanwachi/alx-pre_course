@@ -1,3 +1,3 @@
 My first readme
-hiiii my Damilola
+hiiii my name is Damilola
 nice to meet you......
